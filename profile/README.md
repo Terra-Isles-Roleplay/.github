@@ -32,7 +32,7 @@ Sincerely,
 
 Executive Board of Directors
 
-Director Noah F. & Deputy Director Erving Q.
+Director Noah F, Deputy Director Erving Q, Assistant Deputy Director Tristian R.
 
 Courage, Initiative, Integrity, Professionalism, Accountability, Respect
 
